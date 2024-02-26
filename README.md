@@ -13,4 +13,4 @@ Atualmente sou estudante do Tecnico em Informática na Instituição IFPR
 
  Espero escrever muito por aqui 🦕
 
- ![alt text](fe3271c2f92d9d098bd5a3281eb889e5.gif)
+
