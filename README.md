@@ -13,4 +13,7 @@ Atualmente sou estudante do Tecnico em Informática na Instituição IFPR
 
  Espero escrever muito por aqui 🦕
 
+ ![fe3271c2f92d9d098bd5a3281eb889e5](https://github.com/Kirin1609/Kirin1609/assets/160915302/310c8eae-c43d-41aa-8b9f-310cee9bf1eb)
+
+
 
